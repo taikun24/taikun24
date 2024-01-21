@@ -3,7 +3,8 @@
 
 English ver:
 
-Hello!I'm Taikun24.
-We will deliver useful programs and more.
-So please support us!
-Thank you!
+Hello!
+My name is Taikun24.
+I will deliver useful programs.
+for your daily life, etc.
+Please support me!
